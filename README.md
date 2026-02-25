@@ -1,0 +1,2 @@
+# tanpateam
+# SOLO BUKAN BERARTI TIDAK BISA
